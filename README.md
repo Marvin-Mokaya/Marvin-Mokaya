@@ -2,7 +2,7 @@
 
 **Public Health Professional | Monitoring & Evaluation Expert**
 
-📍 Kitale, Kenya
+📍 Nairobi, Kenya
 
 ---
 
